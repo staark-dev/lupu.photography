@@ -1,2 +1,0 @@
-# lupu.photography
-Lupu Photography
